@@ -1,1 +1,1 @@
-it just cool
+it cool
